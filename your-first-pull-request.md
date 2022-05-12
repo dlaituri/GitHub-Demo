@@ -19,3 +19,4 @@ this is weird.
 how does this work?
 this is amazing.
 does elon musk own this?
+should i quit this job.
